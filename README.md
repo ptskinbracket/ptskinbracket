@@ -4,6 +4,6 @@
 [cbox](https://my.cbox.ws/ptskinbracket) <-- say hi
 ### ୨୧ 6.16.24 - [submissions](https://forms.gle/tmdqDuMRtik5KeaC6) opened
   submissions close 6.30.24!
-### ୨୧ 6.31.24 - submissions closed
+### ୨୧ 6.30.24 - submissions closed
 ### ୨୧ 7.1.24 - bracket being created
 
