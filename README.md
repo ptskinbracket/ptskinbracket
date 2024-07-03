@@ -6,4 +6,4 @@
   submissions close 6.30.24!
 ### ୨୧ 6.30.24 - submissions closed
 ### ୨୧ 7.1.24 - bracket being created
-
+### ୨୧ 7.1.24 - [ROUND ONE](https://forms.gle/z9KU34sNgN9zvXsJ9) voting opened
