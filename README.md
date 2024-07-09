@@ -8,3 +8,4 @@
 ### ୨୧ 7.1.24 - bracket being created
 ### ୨୧ 7.2.24 - [ROUND ONE](https://forms.gle/z9KU34sNgN9zvXsJ9) voting opened
 ### ୨୧ 7.4.24 - ROUND ONE voting closed
+### ୨୧ 7.8.24 - [ROUND TWO](https://forms.gle/M9YcqBk6iyEkTZfY9) voting opened
