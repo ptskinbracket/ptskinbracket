@@ -14,5 +14,5 @@
 ### ୨୧ 7.26.24 - ROUND THREE voting closed
 ### ୨୧ 8.6.24 - [ROUND FOUR](https://forms.gle/sY7YTc6NWUHx4kCLA) voting opened
 ### ୨୧ 8.14.24 - ROUND FOUR voting closed
-### ୨୧ 8.18.24 [ROUND FIVE](https://forms.gle/STGYmDyEx7zkofH8A) voting opened
+### ୨୧ 8.18.24 - [ROUND FIVE](https://forms.gle/STGYmDyEx7zkofH8A) voting opened
 
