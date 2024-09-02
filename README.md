@@ -1,20 +1,72 @@
-![](https://komarev.com/ghpvc/?username=ptskinbracket&style=flat&color=7f5b41) 
+<p align="center"
 
-# ![!](https://i.postimg.cc/43mg7RNZ/IMG-0432.gif) read rentry for info ♡
-[atabook](https://ptskinbracket.atabook.org/) [cbox](https://my.cbox.ws/ptskinbracket) <-- for questions and comments! say hi ^_^
-### ୨୧ 6.16.24 - [submissions](https://forms.gle/tmdqDuMRtik5KeaC6) opened
-  submissions close 6.30.24!
-### ୨୧ 6.30.24 - submissions closed
-### ୨୧ 7.1.24 - bracket being created
+![](https://komarev.com/ghpvc/?username=ptskinbracket&style=flat&color=e3869a) 
+
+<p align="center"
+
+![!](https://i.postimg.cc/RVgxwT7Z/madoka-kamane-removebg-preview.png)
+
+<p align="center"
+
+# read rentry for info ♡
+
+<p align="center"
+
+[cbox](https://my.cbox.ws/ptskinbracket) <-- for questions and comments! say hi ^_^
+
+<p align="center"
+
+### ୨୧ 6.16.24 - [SUBMISSIONS](https://forms.gle/tmdqDuMRtik5KeaC6) opened
+
+<p align="center"
+
+### ୨୧ 6.30.24 - SUBMISSIONS closed
+
+<p align="center"
+
+### ୨୧ 7.1.24 - BRACKET being created
+
+<p align="center"
+
 ### ୨୧ 7.2.24 - [ROUND ONE](https://forms.gle/z9KU34sNgN9zvXsJ9) voting opened
+
+<p align="center"
+
 ### ୨୧ 7.4.24 - ROUND ONE voting closed
+
+<p align="center"
+
 ### ୨୧ 7.8.24 - [ROUND TWO](https://forms.gle/M9YcqBk6iyEkTZfY9) voting opened
+
+<p align="center"
+
 ### ୨୧ 7.11.24 - ROUND TWO voting closed
-### ୨୧ 7.19.24 - [ROUND THREE](https://forms.gle/3qXuSd7iGMbS99EV8) voting opend
+
+<p align="center"
+
+### ୨୧ 7.19.24 - [ROUND THREE](https://forms.gle/3qXuSd7iGMbS99EV8) voting opened
+
+<p align="center"
+
 ### ୨୧ 7.26.24 - ROUND THREE voting closed
+
+<p align="center"
+
 ### ୨୧ 8.6.24 - [ROUND FOUR](https://forms.gle/sY7YTc6NWUHx4kCLA) voting opened
+
+<p align="center"
+
 ### ୨୧ 8.14.24 - ROUND FOUR voting closed
+
+<p align="center"
+
 ### ୨୧ 8.18.24 - [ROUND FIVE](https://forms.gle/STGYmDyEx7zkofH8A) voting opened
+
+<p align="center"
+
 ### ୨୧ 8.27.24 - ROUND FIVE voting closed
+
+<p align="center"
+
 ### ୨୧ 8.27.24 - [ROUND SIX](https://forms.gle/Ru2S3GdAS3NoGd5f7) voting opened
 
