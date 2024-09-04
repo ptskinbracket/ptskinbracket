@@ -70,3 +70,10 @@
 
 ### ୨୧ 8.27.24 - [ROUND SIX](https://forms.gle/Ru2S3GdAS3NoGd5f7) voting opened
 
+<p align="center"
+
+### ୨୧ 8.27.24 - ROUND SIX voting closed
+
+<p align="center"
+
+### ୨୧ 8.27.24 - [LAST ROUND SEVEN](https://forms.gle/X9S7GinjLteCSQxw8) voting opened!
