@@ -1,14 +1,16 @@
+# The winner is announced! Thank you everyone!
+
+<p align="center"
+
+![!](https://i.postimg.cc/65JT91sR/Untitled70-20240916165228.png)
+
 <p align="center"
 
 ![](https://komarev.com/ghpvc/?username=ptskinbracket&style=flat&color=e3869a) 
 
 <p align="center"
 
-![!](https://i.postimg.cc/RVgxwT7Z/madoka-kamane-removebg-preview.png)
-
-<p align="center"
-
-# read rentry for info ♡
+the TOP 10 will be announced soon ♡ congrats to user 4court!
 
 <p align="center"
 
@@ -77,3 +79,11 @@
 <p align="center"
 
 ### ୨୧ 8.27.24 - [LAST ROUND SEVEN](https://forms.gle/X9S7GinjLteCSQxw8) voting opened!
+
+<p align="center"
+
+### ୨୧ 9.16.24 - LAST ROUND SEVEN voting CLOSED...
+
+<p align="center"
+
+### ୨୧ 9.16.24 - Winner ANNOUNCED!
